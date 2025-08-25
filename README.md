@@ -4,4 +4,5 @@
 ### 官方邮箱：Rev-1967@protonmail.com
 ### XMPP频道：马列毛主义墙内总群@muc.xmpp.earth
 ### 加入方式：https://github.com/Rev1966/Long-live-the-revolution
-![image][(https://github.com/Rev1966/Rebellion-is-justified/blob/main/png/中修.png）](https://github.com/Rev1966/Rebellion-is-justified/blob/main/png/%E4%B8%AD%E4%BF%AE.png?raw=true)
+![image]<img width="1970" height="2172" alt="图片" src="https://github.com/user-attachments/assets/17dcbad5-4cb1-42eb-97d4-d7abf21e1651" />
+
