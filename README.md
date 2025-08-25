@@ -3,3 +3,4 @@
 ### 联系我们：
 ### 官方邮箱：Rev-1967@protonmail.com
 ### XMPP频道：马列毛主义墙内总群@muc.xmpp.earth
+### 加入方式：https://github.com/Rev1966/Long-live-the-revolution
